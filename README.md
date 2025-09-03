@@ -1,3 +1,5 @@
+**Anthony’s Plumbing, Heating & Air, Inc.: Somerset’s One-Stop Shop for All Plumbing, Furnace & AC Needs**
+
 Your home is more than just a place to live; it's an investment in your comfort and well-being. Keeping it safe and functional requires attention to a few critical systems: plumbing, heating, and cooling. When a problem arises, you need a partner you can trust. In Somerset, that partner is Anthony’s Plumbing, Heating & Air Conditioning, Inc.
 We’re not just a company; we’re your neighbors, dedicated to providing top-tier service that keeps your home running smoothly. Here’s a look at why we've become the go-to experts for so many homeowners.
 
